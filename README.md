@@ -11,7 +11,7 @@
 
 - 🌱 I’m currently learning **Next JS**
 
-- 👨‍💻 All of my projects are available at [https://saiful-portfolio-b029e.web.app/](https://saiful-portfolio-b029e.web.app/)
+
 
 - 📫 How to reach me **bdsaiful770@gmail.com**
 
