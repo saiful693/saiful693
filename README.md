@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **bdsaiful770@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16O9aOYG24RTpccJQDNaO9cFLbVhsbtu8/view?usp=sharing](https://drive.google.com/file/d/16O9aOYG24RTpccJQDNaO9cFLbVhsbtu8/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
